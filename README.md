@@ -6,3 +6,4 @@ VPR https://docs.google.com/document/d/1-cJhPYtbXGkiXkcyDCFr28FQWI0ND_1NxwG_dKBa
 презентация по cybercamp 04.10.24 https://docs.google.com/presentation/d/1_M1RnwA2QkwMOJQXwZQKexxmZYLHnbFqoAOzN9th5K0/edit?usp=sharing
 
 Презентация по cybercamp 14.10.24 - https://drive.google.com/file/d/1UPcDXq27CHc0-wPwz93KegMGHXxulIAs/view?usp=sharing
+Проверочная работа 15.10.24 - https://drive.google.com/file/d/1lemn3lyFd0ND7FEHHXnFbEkTgQSpYC4T/view?usp=sharing
