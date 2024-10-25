@@ -11,4 +11,4 @@ VPR https://docs.google.com/document/d/1-cJhPYtbXGkiXkcyDCFr28FQWI0ND_1NxwG_dKBa
 
 Титульный лист 18.10.24 - https://docs.google.com/document/d/1BAX8qJfZEmoqZ4L-K0QCwAuDPVktPX-e25V2v8j7LxQ/edit?usp=sharing
 
-https://drive.google.com/drive/folders/1-2Zu2Vzf9uvltV9tNWPPZc1WBFSfGDO2 ОБЖ
+https://drive.google.com/drive/folders/1-2Zu2Vzf9uvltV9tNWPPZc1WBFSfGDO2?usp=drive_link ОБЖ
