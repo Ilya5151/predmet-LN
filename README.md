@@ -16,3 +16,5 @@ https://drive.google.com/drive/folders/1-2Zu2Vzf9uvltV9tNWPPZc1WBFSfGDO2?usp=dri
 Понятия степик - https://docs.google.com/document/d/1JtFJkpuXc-fLzneWEZRCKBLib7j7go_HLdpZJ6OlBxw/edit?usp=sharing
 
 Понятия сybercamp - https://docs.google.com/document/d/1GXH_BQghInVBwU_WCEcaq7Rps-Ku4Q6bKCdlM0rkloc/edit?usp=sharing
+
+Понятия позитив - https://docs.google.com/document/d/1HXxVcgGlHIlcA8vyAk5vnnqnbh_8RtRCzOWFFPXRvGI/edit?usp=sharing
