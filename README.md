@@ -24,3 +24,5 @@ https://drive.google.com/drive/folders/1-2Zu2Vzf9uvltV9tNWPPZc1WBFSfGDO2?usp=dri
 Понятия позитив - https://docs.google.com/document/d/1HXxVcgGlHIlcA8vyAk5vnnqnbh_8RtRCzOWFFPXRvGI/edit?usp=sharing
 
 https://drive.google.com/file/d/1hesk50CqzC3XDin9l2S86j60-MSCPts4/view?usp=sharing cтепик
+
+https://docs.google.com/document/d/13n2fqFvx2rvLlXgPHy-AmfndhJuZibe7zTC7cYe3OVw/edit?usp=sharing конспект
