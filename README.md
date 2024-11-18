@@ -20,3 +20,5 @@ https://drive.google.com/drive/folders/1-2Zu2Vzf9uvltV9tNWPPZc1WBFSfGDO2?usp=dri
 Понятия позитив - https://docs.google.com/document/d/1HXxVcgGlHIlcA8vyAk5vnnqnbh_8RtRCzOWFFPXRvGI/edit?usp=sharing
 https://docs.google.com/forms/d/e/1FAIpQLSdDJCV30ynOPPSc7urX6t5Z22uiX7LGbHLGoj8ICLzIALLaMA/viewform
 степик- https://docs.google.com/document/d/15iggJZCWXbX_NWe3SzXiss0hOfY0qTmFYSKJYYfGsfU/edit
+
+https://docs.google.com/document/d/16W4KnlFBErZ0_skJ8eGd8sB68ezFENLCsGoMLwTe5RU/edit?usp=sharing питон
