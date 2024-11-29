@@ -21,6 +21,6 @@ https://drive.google.com/drive/folders/1-2Zu2Vzf9uvltV9tNWPPZc1WBFSfGDO2?usp=dri
 https://docs.google.com/forms/d/e/1FAIpQLSdDJCV30ynOPPSc7urX6t5Z22uiX7LGbHLGoj8ICLzIALLaMA/viewform
 степик- https://docs.google.com/document/d/15iggJZCWXbX_NWe3SzXiss0hOfY0qTmFYSKJYYfGsfU/edit
 
-
-
 https://docs.google.com/document/d/16W4KnlFBErZ0_skJ8eGd8sB68ezFENLCsGoMLwTe5RU/edit?usp=sharing пайтон
+
+https://docs.google.com/document/d/1A1p1URNOhrdEeo7gyBLrytxeWgSBpZNGkCYWQR7Htto/edit?usp=sharing Контрольная по питон
