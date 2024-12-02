@@ -23,4 +23,4 @@ https://docs.google.com/forms/d/e/1FAIpQLSdDJCV30ynOPPSc7urX6t5Z22uiX7LGbHLGoj8I
 
 https://docs.google.com/document/d/16W4KnlFBErZ0_skJ8eGd8sB68ezFENLCsGoMLwTe5RU/edit?usp=sharing пайтон
 
-https://docs.google.com/document/d/1A1p1URNOhrdEeo7gyBLrytxeWgSBpZNGkCYWQR7Htto/edit?usp=sharing Контрольная по питон
+https://docs.google.com/document/d/1A1p1URNOhrdEeo7gyBLrytxeWgSBpZNGkCYWQR7Htto/edit?usp=sharing -  Контрольная по питон
